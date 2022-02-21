@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hiamfc
+- 👀 I’m interested in React js
+- 🌱 I’m currently learning React js
+- 💞️ I’m looking to collaborate on society
+- 📫 How to reach me INSTAGRAM: @e.odoss
